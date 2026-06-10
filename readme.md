@@ -1,0 +1,1 @@
+a place where I upload assets related to SFSocial (a discord server).
